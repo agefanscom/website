@@ -1,8 +1,3 @@
-![在线动画 动漫下载 - AGE动漫](https://p1.bdxiguaimg.com/origin/pgc-image/8069753dcbde447aa5eacf1bf3f390b5)
-> 在线动画 动漫下载 - AGE动漫
-
----
-
 ## AGE动漫 · 最新网址（2023.06.28 最后更新）
 > [https://www.agedm.tv](https://www.agedm.tv?ref=github)
 >
