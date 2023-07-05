@@ -1,6 +1,8 @@
-## AGE动漫 · 最新网址（2023.06.28 最后更新）
-> [https://www.agedm.tv](https://www.agedm.tv?ref=github)
+## AGE动漫 · 最新网址（2023.07.05 最后更新）
+> 新版：[https://www.agemys.org](https://www.agemys.org?ref=github)
 >
+> 老版：[https://www.agedm.tv](https://www.agedm.tv?ref=github)
+> 
 > 如果浏览器输入网址，请手动添加 `https` 而非 `http`
 
 ## AGE动漫 · 易记域名
