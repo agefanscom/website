@@ -1,5 +1,7 @@
-## AGE动漫 · 最新网址（2025.05.03 最后编辑时间）
-> 最新域名：[https://www.agefans.la](https://www.agefans.la?ref=github)
+## AGE动漫 · 最新网址（2025.06.17 最后编辑时间）
+> 最新域名：[https://www.agedm.me](https://www.agedm.me?ref=github)
+>
+> ~~最新域名：[https://www.agefans.la](https://www.agefans.la?ref=github)（已阵亡 o(╥﹏╥)o）~~
 
 ## AGE动漫 · 易记域名
 > [http://www.age.tv](http://www.age.tv?ref=github)
