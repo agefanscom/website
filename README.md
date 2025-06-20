@@ -1,6 +1,8 @@
-## AGE动漫 · 最新网址（2025.06.17 最后编辑时间）
-> 最新域名：[https://www.agedm.me](https://www.agedm.me?ref=github)
+## AGE动漫 · 最新网址（2025.06.21 最后编辑时间）
+> 最新域名：[https://www.agedm.live](https://www.agedm.live?ref=github)
 >
+> ~~最新域名：[https://www.agedm.me](https://www.agedm.me?ref=github)（已阵亡 o(╥﹏╥)o）~~
+> 
 > ~~最新域名：[https://www.agefans.la](https://www.agefans.la?ref=github)（已阵亡 o(╥﹏╥)o）~~
 
 ## AGE动漫 · 易记域名
@@ -16,7 +18,7 @@
 
 
 ## AGE动漫 · APP下载地址
-> [https://www.agedm.app](https://www.agedm.app?ref=github)
+> [https://www.ageanmie.app](https://www.ageanmie.app?ref=github)
 >
 > 包含 iOS单页版客户端 和 Android 客户端，下载 app 不迷路，强烈建议下载！！
 
