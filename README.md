@@ -21,7 +21,7 @@
 
 
 ## AGE动漫 · APP下载地址
-> [https://www.ageanmie.app](https://www.ageanmie.app?ref=github)
+> [https://www.ageanime.app](https://www.ageanime.app?ref=github)
 >
 > 包含 iOS单页版客户端 和 Android 客户端，下载 app 不迷路，强烈建议下载！！
 
